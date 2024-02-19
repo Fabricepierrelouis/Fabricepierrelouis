@@ -1,0 +1,4 @@
+- Ola meu nome é fabrice Emmerlin pierre louis
+- tenho 17 aninhos
+- sou natural do haiti e nacionalizaado brasileiro,
+- estou cursando o terceiro ano do ensino medio no ayrton senna em foz do iguaçu paraná.
